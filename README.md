@@ -6,4 +6,4 @@
 ![login](https://user-images.githubusercontent.com/73736082/125173751-c995a300-e1fb-11eb-9ae7-b80ea432d764.png)
 
 
-![20210711_035401](https://user-images.githubusercontent.com/73736082/125173766-e205bd80-e1fb-11eb-9a20-723a1463d3d6.png)
+![logouttry](https://user-images.githubusercontent.com/73736082/125173781-fc3f9b80-e1fb-11eb-9914-1db7ea51d012.png)
